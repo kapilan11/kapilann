@@ -1,3 +1,1 @@
-#kapilann
-
 Practicing Phase
